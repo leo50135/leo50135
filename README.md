@@ -14,4 +14,6 @@ Aqui estão algumas ideias para você começar:
 - 😄 Pronomes: home
 - ⚡ Curiosidade: sabe como o elefante coça a barriga?
 - 🚗 Carro preferido atualmente: Dodge Challenger Demom
+
+- 
 ![](https://media1.tenor.com/m/UDkYiVXZoBwAAAAC/flying-car.gif)
